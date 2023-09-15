@@ -2,11 +2,9 @@
 
 ### If tech is magic, then, I'm a magician.
 - Hey hey !😊
-- Demilade here😄.
-- A Law student in Tech👩‍💻🧑‍⚖‍
+- I'm Demilade😄.
 - Still learning though - well, learning never stops😀.
 
-- ### Loading...
 
 
 <!--
