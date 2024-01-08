@@ -1,9 +1,9 @@
 
 
 ### If tech is magic, then, I'm a magician.
-- Hey hey !😊
+- Hi !
 - I'm Demilade😄.
-- Still learning though - well, learning never stops😀.
+- Still learning though - well, learning never stops.
 
 
 
